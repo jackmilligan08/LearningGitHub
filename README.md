@@ -5,8 +5,7 @@ Toby - 02/02/2023
 Class of 2023
 Aaron Escude - 02/02/2023
 Class of 2025
-Jack - 2/02/2023
-Second Semester, 2023 
+Jack - Winter Term, 2023 
 Jesse -02/02/2023
 Winter Term, 2022
 Felix - 2/3/ 23 
@@ -20,5 +19,4 @@ Skylar Arce - 02/06/2023 Winter Term, 2023
 Basheer Maalouf - 2/06/2023 
 Winter Term, 2023
 Mateo - 02/06/23 Winter Term, 2023
-Gabriel - 02/06/2023 
 
